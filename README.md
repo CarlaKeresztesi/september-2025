@@ -1,1 +1,1 @@
-# September 2025 Repo
+# September 2025 self-study
